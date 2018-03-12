@@ -12,7 +12,7 @@ El objeto social de la entidad será el desarrollo de actividades característic
 
 ### Artículo 3.- Domicilio Social
 
-La cooperativa fija su domicilio en GRANADA, CALLE MOZART Nº ********, pudiendo ser trasladado a otro lugar del mismo término municipal bastando para ello la decisión del órgano de administración de la entidad. Cuando el traslado se produzca a una localidad distinta se requerirá acuerdo de la Asamblea General. En ambos casos será necesaria la correspondiente modificación estatutaria y su consiguiente inscripción en el Registro de Sociedades Cooperativas Andaluzas.
+La cooperativa fija su domicilio en GRANADA, CALLE DOCTOR BUENAVENTURA CARRERAS ESQUINA CON CALLE MOZART, 18004, pudiendo ser trasladado a otro lugar del mismo término municipal bastando para ello la decisión del órgano de administración de la entidad. Cuando el traslado se produzca a una localidad distinta se requerirá acuerdo de la Asamblea General. En ambos casos será necesaria la correspondiente modificación estatutaria y su consiguiente inscripción en el Registro de Sociedades Cooperativas Andaluzas.
 No obstante, la sociedad cooperativa podrá establecer las sucursales que estime convecientes, previo acuerdo adoptado al efecto por el órgano de aministración conforme a lo dispuesto en el artículo 6 de la Ley 14/2011 de Sociedades Cooperativas Andaluzas.
 
 ### Artículo 4.- Ámbito Territorial de Actuación
